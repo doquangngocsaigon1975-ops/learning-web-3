@@ -6,3 +6,4 @@ bài 2 học 2 day
 đi học ở đâu ?
 mai học gì?
 làm sao làm bài tập
+tieps tực 
