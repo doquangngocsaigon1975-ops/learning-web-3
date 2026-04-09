@@ -6,11 +6,17 @@ bài 2 học 2 day
 đi học ở đâu ?
 mai học gì?
 làm sao làm bài tập
-tieps tực fg mhfghm fghm gfhm 
-ac asdc sdc sdcsdcsdc 
-dfv dfvdfv dfv dfv dfv dfv dfv dfv d
-dfv df vdfv dfv dvdfv dfv dfvdfv dfv
-dfv dfv dfv dfv dfvdfv dfv dfv df df df 
+day 
+day 1
+cretor acc github vs X accdv sdfv 
+viet tieu su, tinhs pointsdvf sdf v
+tạo acc x mới cho hnayds vsdsdv sdv 
+làm sao nhảy?
+nhảy làm gì?
+đam mê ko?
+học nhanh
+làm nhiều
+test nhiều  sdv sdv sdv sd
 học web 3 
 day 1 học 1 bài
 bài 2 học 2 day
