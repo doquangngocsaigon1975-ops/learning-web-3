@@ -1,47 +1,29 @@
 # learning-web-3
 
-học web 3 
-day 1 học 1 bài
 
-bài 2 học 2 day
-đi học ở đâu ?
-
-mai học gì?
-làm sao làm bài tập
-
-day 
-day 1
+day 1 học 1 bài bài 2 học 2 day
+đi học ở đâu ? làm sao làm bài tập
 
 
-làm sao nhảy?
 nhảy làm gì?học toán cao cấp logic.
 cretor acc github vs X 
 viet tieu su, tinhs poin
 
 tạo acc x mới cho hnay
-làm sao nhảy?
-nhảy làm gì?
+làm sao nhảy?nhảy làm gì?
 
-học nhanh
-làm nhiều
+học nhanh làm nhiều
 test nhiều  sdv sdv sdv sd
-học web 3 
-day
+
+
 làm sao làm bài tập
-day 1
 cretor acc github vs X acc
 viet tieu su, tinhs point
 tạo acc x mới cho hnay
-làm sao nhảy?
-nhảy làm gì?
-đam mê ko?
-day 1
+làm sao nhảy? nhảy làm gì?
+
 cretor acc github vs X acc
 viet tieu su, tinhs points
 tạo acc x mới cho hnay
-làm sao nhảy?
-nhảy làm gì?
-đam mê ko?
-học nhanh
-làm nhiều
-test nhiều  
+làm sao nhảy?nhảy làm gì?đam mê ko?
+
